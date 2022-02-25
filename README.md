@@ -17,9 +17,7 @@
           📖 Reading
           🎥 Watching movies
           🎹 Currently learning Piano
-          🤡 Make my siblings and mother annoyed at me
           💆 Sleeping
-          🎮 Playing plants vs. zombies
          
 🔎 My talents are 
 
